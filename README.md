@@ -1,6 +1,6 @@
 # Jonathan Sukoneck
 
-## Enterprise GTM | AI-First Sales | Enterprise SaaS
+## Enterprise GTM | AI-First Sales | Enterprise SaaS & AI Automation
 
 Helping AI, SaaS, and global technology companies build and execute U.S. go-to-market strategies, generate enterprise pipeline, develop strategic partnerships, and lead complex enterprise sales from first meeting through close.
 
